@@ -8,7 +8,7 @@
 <p align="center">
   ⠀𓏴⠀⠀ bloom  ◞⠀c+hh, int pls!! ⠀ ͡꒱ㅤdncover, dncopy ⠀𓎟𓎟⠀⠀
   <br>
-  <a href="https://yourname.carrd.co">carrd</a>
+  <a href="https://bl00zmcrrd.carrd.co/">carrd</a>
    · <a href="https://discord.com/users/1031153668067708979">discord</a>
    · <a href="https://www.tiktok.com/@yappingkakafr?_t=ZM-8zy9Pjpwh3b&_r=1">tiktok</a>
 </p>
