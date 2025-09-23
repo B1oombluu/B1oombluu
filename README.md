@@ -1,16 +1,18 @@
-## Hi there 👋
+![div](https://files.catbox.moe/hw2bbt.png)
 
-<!--
-**B1oombluu/B1oombluu** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+<p align="center">
+  <br>
+  <img src="https://files.catbox.moe/vqy352.png" width="180" alt="pf">
+</p>
 
-Here are some ideas to get you started:
+<p align="center">
+  ⠀𓏴⠀⠀ bloom  ◞⠀c+hh, int pls!! ⠀ ͡꒱ㅤdncover, dncopy ⠀𓎟𓎟⠀⠀
+  <br>
+  <a href="https://yourname.carrd.co">carrd</a>
+   · <a href="https://discord.com/users/1031153668067708979">discord</a>
+   · <a href="https://www.tiktok.com/@yappingkakafr?_t=ZM-8zy9Pjpwh3b&_r=1">tiktok</a>
+</p>
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center"> <img src="https://files.catbox.moe/zpvhtg.png" width="835" alt="bn">
+
+![div](https://files.catbox.moe/27jjqc.png)
