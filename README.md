@@ -14,5 +14,10 @@
 </p>
 
 <p align="center"> <img src="https://files.catbox.moe/zpvhtg.png" width="835" alt="bn">
+ 
+ <p align="center">◟ 🔥 　  my dni's   —  ⁣ ⁣  <br>
+       ⁣ ⁣⁣  ◞　　“<a href="https://dni-criteria.carrd.co/">Basic dni criteria</a>, sensitive ppl, sweats, weridos, 18+, overconfident ppl’’   . 𓎟𓎟 <br>
+         
+<br>
 
 ![div](https://files.catbox.moe/o0ml2q.png)
