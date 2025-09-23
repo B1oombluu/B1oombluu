@@ -2,7 +2,7 @@
 
 <p align="center">
   <br>
-  <img src="https://files.catbox.moe/vqy352.png" width="180" alt="pf">
+  <img src="https://files.catbox.moe/vqy352.png" width="280" alt="pf">
 </p>
 
 <p align="center">
