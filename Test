@@ -1,17 +1,1 @@
-<style>
-  #scroll1 {
-    height: 100px;
-    width: 120px;
-    padding: 10px;
-    border: 3px double #ccc;
-    font-size: 16px;
-	font-family: Times;
-    overflow: auto; 
-  }
- 
-</style>
-<div id="scroll1">
-<strong>double border</strong>
-<p></p>
-  text text text text text text text text text text text text text text text text text text text text text text text text text text text text text text text text text text text text 
-</div>
+I'm making a dni list,, OK?
