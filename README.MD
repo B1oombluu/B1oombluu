@@ -10,7 +10,7 @@
 
 
 
-<p align="center">
+<p
   <br>
   <img src="https://files.catbox.moe/i7m91e.png" alt="div">
 </p>
