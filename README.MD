@@ -1,7 +1,6 @@
 <p align="center">
   lineieneen bleh
 ![div](https://files.catbox.moe/4pkzi3.png)
-
 <p align="center"> <img src="https://files.catbox.moe/81y1be.png" width="835" alt="bn">
 
 <p align="center">
