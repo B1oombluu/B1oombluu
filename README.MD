@@ -1,11 +1,11 @@
 <p align="center">
-  lineieneen bleh
+  "Oh, fuck... that's the longest I've ever edged."
 ![div](https://files.catbox.moe/4pkzi3.png)
 <p align="center"> <img src="https://files.catbox.moe/81y1be.png" width="835" alt="bn">
 
 <p align="center">
   <br>
-  <img src="j" width="280" alt="pf">
+  <img src="https://files.catbox.moe/qubl2d.png" width="280" alt="pf">
 </p>
 
 <p align="center">
