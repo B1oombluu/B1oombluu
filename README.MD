@@ -11,7 +11,7 @@
 </p>
 
 <p align="center">
-  <img src="https://files.catbox.moe/i7m91e.png" alt="div">
+  <img src="https://files.catbox.moe/4pkzi3.png" alt="div">
 </p>
 
 <p align="center">
