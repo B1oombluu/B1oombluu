@@ -12,7 +12,7 @@
 
 <p align="center">
   <img src="https://files.catbox.moe/t637iq.png" alt="div">
-  <img src="https://files.catbox.moe/i7m91e.png" alt="div">
+  <img src="https://files.catbox.moe/xm4i9m.png" alt="div">
 </p>
 
 <p align="center">
