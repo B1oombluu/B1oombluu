@@ -3,5 +3,6 @@
 </p> 
 
 <p align="center">
-  "Oh, fuck... that's the longest I've ever edged." width="33"
+  "Oh, fuck... that's the longest I've ever edged."
+<p width="33">
 </p>
